@@ -1,1 +1,3 @@
+@Nathan
+
 The land is recovering very nicely from the War of Champions that ended roughly 15 years ago. There are still patches of land where extremely powerful magic was used. These lands are filled with odd events like people going missing, unknown people showing up lost, voices of the dead, higher counts of monsters, and supplies and goods that fill not just the body with energy, but the mind as well.

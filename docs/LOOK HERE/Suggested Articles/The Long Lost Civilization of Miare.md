@@ -1,0 +1,16 @@
+In the annals of Miare's history, there exists a chapter veiled in mystery and tragedy - the story of a long lost civilization that fell victim to the cataclysmic events of the First God War. This ancient civilization, whose name and identity have been all but forgotten, once flourished in the midst of a vibrant and diverse world. However, the devastating conflict between the gods that ensued forever altered the fate of sentient life on Miare.
+
+Little is known about the civilization that thrived before the First God War, as much of its history has been lost to time. However, fragments of legends and archaeological discoveries provide glimpses into its once glorious existence. The remnants of grand cities, intricate temples, and enigmatic artifacts hint at an advanced society that possessed profound knowledge and skills.
+
+As the conflict between the gods escalated, the mortals of this civilization found themselves caught in the middle. The gods, in their pursuit of power and dominance, unleashed unimaginable forces upon the world. The devastating consequences of their divine battles wreaked havoc on the land, decimating the cities and extinguishing the lives of countless inhabitants.
+
+
+In the aftermath of the First God War, the long lost civilization was left in ruins, its once-great achievements reduced to crumbling remnants. The survivors, if any, scattered across the land, struggling to rebuild and make sense of the shattered world around them. Their knowledge, wisdom, and history became fragmented, lost amidst the chaos and destruction.
+
+However, the legacy of this lost civilization can still be felt in the remnants that have survived the ravages of time. Archaeologists and historians continue to uncover artifacts and decipher ancient texts, piecing together the puzzle of this enigmatic civilization. These discoveries shed light on their advanced technologies, intricate belief systems, and cultural practices, sparking the imaginations of scholars and adventurers alike.
+
+The long lost civilization of Miare serves as a reminder of the fragility of existence and the power of the divine. It stands as a testament to the catastrophic consequences that the clash of gods can have on sentient life. But it also ignites curiosity and a thirst for knowledge, urging scholars and explorers to delve into the secrets of the past and uncover the truth behind the lost civilization.
+
+As we continue to navigate the present world of Miare, the echoes of the first god war remind us of the importance of preserving our rich history, learning from past mistakes, and honoring the diversity and beauty of life that still thrives within this realm. The long lost civilization serves as a haunting reminder of the need for balance and harmony, as we strive to forge a better future for all inhabitants of Miare.
+
+The story of the long lost civilization of Miare is shrouded in intrigue and despair. Its tragic fate serves as a powerful reminder of the consequences of divine conflict, while also fueling the fires of exploration and discovery. As we continue to unravel the mysteries of the past and seek a deeper understanding of our world, the story of this lost civilization will forever remain an enigma, urging us to strive for a future where the mistakes of the past are not repeated.
