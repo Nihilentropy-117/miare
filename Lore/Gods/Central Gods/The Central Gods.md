@@ -1,0 +1,3 @@
+The distinction between Housed Gods, Neutral Gods, and Exiled Gods indicates societal values and taboos. The Housed Gods represent aspects of life that are cherished, admired, and encouraged. Neutral Gods represent fundamental and undeniable aspects of existence, while Exiled Gods embody facets of life that are feared, shunned, or viewed as necessary evils.
+
+Central Region gods live in an adjacent plane to the mortal realm.

@@ -1,0 +1,5 @@
+This cosmic principle embodies Time, History, Future, Prophecy, and Aging. It isn't a being or entity in the way the other gods are, but instead an ever-present, pervasive force that governs the rhythmic flow of time and the unfolding of history. Emanating from the moment of the world's creation, when the first second ticked forward, the Eternal Clockwork keeps the timeline of existence in check.
+
+Unlike other gods, it has no will, thoughts, or intentions—it merely exists as an unwavering, immutable reality, moving the universe along its predetermined path. It is not worshipped in the same way as the gods, but scholars, historians, and seers might seek to understand it, chart its influence on their world, and predict future events through its steady, unyielding progress. Its "followers" are often philosophers and sages who study the nature of existence and the passage of time.
+
+In terms of interaction with other gods, the Eternal Clockwork is indifferent—it simply exists, impartial and unchanging. It weaves the tapestry of time in which the actions of the gods and mortals alike are mere threads, forming the grand, intricate design of history and destiny.

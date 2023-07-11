@@ -1,0 +1,3 @@
+In the East Region, gods choose to walk among mortals, embodying larger-than-life figures that directly influence the world. These god-figures might be great leaders, warriors, artists, or thinkers, using their godly powers subtly to push society forward and inspire mortals to reach their potential.
+
+For instance, a god of wisdom might take the form of a sage king or a celebrated scholar, guiding the kingdom toward enlightened governance or creating a world-renowned center of learning. A god of war might be a legendary general or hero, leading armies to victory and establishing an era of peace.

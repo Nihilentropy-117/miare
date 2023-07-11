@@ -1,0 +1,3 @@
+In the West Region, gods are more intangible, existing as spirits of the natural world. They could be the spirit of a majestic mountain, a swift river, a dense forest, a vast desert, or even an entire city. These gods can influence their surroundings subtly and over time, shaping the land and guiding its inhabitants.
+
+For example, the spirit of a forest might ensure that its flora and fauna thrive, while subtly guiding the local population to live in harmony with nature. The spirit of a city might influence the rise of trade, arts, and technology, driving the city toward prosperity while maintaining a balance between progress and tradition.

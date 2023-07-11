@@ -1,0 +1,7 @@
+The Central Region, Miare, the Island of the Crab, is characterized by its divine adjacency. The inhabitants live alongside their gods, who are experienced as distinct, interactive beings in an adjacent plane. The people here are likely to have established robust religious institutions dedicated to individual deities, leading to diverse religious practices and beliefs within the region.
+
+Historically, the Central Region might have been the seat of major theological developments and the birthplace of organized religion. Its inhabitants might be considered the keepers of divine law, making it a place of pilgrimage for people from the other regions.
+
+Relations with the other regions would depend heavily on religious diplomacy. Given the perceived proximity of their gods, the Central Region could view themselves as intermediaries between the divine and the mortal, guiding religious practices across the world. This could lead to either a sense of spiritual superiority or a commitment to religious service.
+
+Miare, the Central Region, has a mix between the feelings of east and West but revolves around compromise. In regards to how the differences between religious views falls? There are some mild spats here and there but the laws are very clear on it. Do not discriminate based on beliefs. As you can have your own, you must allow others to have theirs. There is even a footnote stating: If a deity is to decree via physical manifestation, laws are subject to change. * *(As long as proof of deity status is provided and confirmed).

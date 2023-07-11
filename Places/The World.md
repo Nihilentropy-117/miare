@@ -1,0 +1,12 @@
+Firstly, we have the central region, **Miare**, the heart of our world. Here, the gods exist in a plane adjacent to our own, serving as constant companions to mortals. Miare is a place of tradition, where magic, whether divine or arcane, adheres to strict guidelines and rituals. When practicing magic here, think of it as a sacred dialogue with the gods, filled with respect and mutual understanding. Miare is home to diverse religious institutions dedicated to its various gods, making it a place of pilgrimage and profound theological exploration. If you seek structure and order, Miare welcomes you.
+
+To the east lies the technologically advanced region of **Anehashi**, governed by the Anehashi Alliance. Here, gods walk among mortals, embodying great figures who directly influence the world. Magic in Anehashi is self-driven; practitioners pull energy from their own strengths to manipulate the Prime Essence. The realm is known for its innovative spirit, where science and magic often intersect. It is a place for those who dare to push boundaries and forge their own destiny.
+
+Finally, venture to the west, and you'll find the **Wild Garden**, where gods embody the spirits of the world. Magic here is about unity and harmony, requiring practitioners to offer their own magic to the spirits, who then perform the magic in return. It's a place of deep respect for the natural world and the cycles of life. If you resonate with nature and seek to understand its rhythms, Wild Garden is the place for you.
+
+While these three regions may differ, all draw upon the Prime Essence, the life force, tying all beings and magic together. 
+
+These gods suggest a world steeped in duality and balance, where every light has its shadow and every creation its destruction. It's a world filled with a vast array of cultures, with an intense appreciation for both the natural and supernatural, the material and immaterial. This is a place where the arts flourish as greatly as science and logic. It's a world of paradoxes and contradictions, a world of beauty and decay, wisdom and folly, courage and fear, love and hatred.
+
+
+Despite the stark contrasts, there is a sense of harmony. No god completely overshadows another; instead, they seem to work in a complex interplay, sometimes in alliance, sometimes in opposition. The gods' followers reflect this, their behaviors and roles serving as microcosms of the gods' diverse domains. From this, we can infer a world of vibrant complexity, where diversity of thought and belief is more than just tolerated—it's the norm.

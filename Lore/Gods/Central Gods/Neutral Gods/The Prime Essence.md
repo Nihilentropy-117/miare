@@ -1,0 +1,5 @@
+The Prime Essence was born from the world's creation itself. They are stoic, grounded, and wise, embodying the fundamental essence of existence. They are a manifestation of the energy in the universe given form. They maintain the basic elements of life, ensuring the continued existence of the world and all its inhabitants. This god represents the very core of existence. Its followers could be found among those who appreciate the bare essentials of life. The Prime Essence would likely be respected by all gods as the foundation of existence.
+
+The Prime Essence, as the life force energy permeating the universe and giving form to it, serves as the raw fuel for all magic, taking different shapes and forms in different regions. This force ties all regions together at a cosmic level, making it the foundation upon which all magic—and life itself—is built.
+
+All regions acknowledge the prime essence in some way. They may call it something different but everyone knows of the source. It isn't a major debate but more of a translation between regions.

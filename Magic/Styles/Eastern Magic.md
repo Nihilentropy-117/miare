@@ -1,0 +1,3 @@
+Magic in the East Region comes from within, tied closely to science and individual achievement. Users draw on their own strengths to harness the Prime Essence, using their understanding of the natural laws and their own potential to shape reality. The gods, manifesting as great figures, are embodiments of this ideal—great individuals who used their internal strengths to shape the world.
+
+Their relations with other regions would be influenced by this self-reliant approach. The East could be seen as progressive and innovative, constantly pushing boundaries. However, they might also be seen as reckless or arrogant, potentially leading to conflicts, particularly with the West, which values harmony and balance.
