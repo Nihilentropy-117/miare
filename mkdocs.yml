@@ -1,0 +1,13 @@
+site_name: Miare Wiki
+
+theme:
+  name: material
+  features:
+    - navigation.instant
+    - navigation.tracking
+    - navigation.tabs
+    - navigation.tabs.sticky
+    - navigation.path
+extra_files:
+    - docs/CNAME
+
